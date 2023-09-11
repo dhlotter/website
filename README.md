@@ -1,1 +1,1 @@
-PLaceholder for easyentropy.com
+Placeholder for www.easyentropy.com
